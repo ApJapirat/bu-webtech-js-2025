@@ -1,0 +1,2 @@
+- Nickname: Tae
+- Favorite Food: MaMaa
